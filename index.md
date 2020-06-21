@@ -12,3 +12,5 @@ Detective Chief Inspector Endeavour Morse, GM, is the eponymous fictional charac
 
 ## A typical quote from Morse:
 > there is a 50 per cent chance that the person who finds the body is the murderer
+
+<img src="https://hubimages.itv.com/episode/897196?w=304&h=174&q=80&blur=0&bg=false&image_format=jpg"/>
